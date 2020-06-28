@@ -22,3 +22,8 @@ Otherland besteht aus 4 Romanen, die im Englischen zwischen 1996 und 2001 erschi
 ## Sam
 * Freund/Freundin von Orlando
 
+Aus dem Cover:
+> Tad Williams schreibt einen modernen Fantasyroman, dessen Schauplätze im virtuellen Raum des
+> Cyberspace liegen...
+> Mit vollen Recht darf man ihn den neuen Tolkien nennen, denn seine Weltschöpfungsideen sind ohne
+> Vorbild - so wie vor beinahe hundert Jahren die Tolkiens.
