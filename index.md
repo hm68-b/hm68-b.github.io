@@ -27,3 +27,6 @@ Aus dem Cover:
 > Cyberspace liegen...
 > Mit vollen Recht darf man ihn den neuen Tolkien nennen, denn seine Weltschöpfungsideen sind ohne
 > Vorbild - so wie vor beinahe hundert Jahren die Tolkiens.
+
+<img src="https://www.tadwilliams.com/wp-content/uploads/2018/03/otherland-e1520477397646.png"/>
+(from <a href="https://www.tadwilliams.com">www.tadwilliams.com</a>)
